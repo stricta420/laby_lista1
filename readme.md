@@ -1,1 +1,1 @@
-this is screept learning
+this is sprata learning
